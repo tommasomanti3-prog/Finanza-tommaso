@@ -1,2 +1,0 @@
-# Finanza-tommaso
-Finanza
